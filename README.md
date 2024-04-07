@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kazga
+- 👀 I’m interested in making games
+- 🌱 I’m currently learning scripting / coding
+- 💞️ I’m looking to collaborate on N/A
+- 😄 Pronouns: Him/His.
+- ⚡ Fun fact: I like games.
